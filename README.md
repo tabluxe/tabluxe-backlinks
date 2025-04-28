@@ -10,11 +10,11 @@ Bienvenue chez **Tabluxe**, la référence en matière de tableaux d'art de luxe
 
 ## 🔗 Découvrez notre collection  
 Explorez notre gamme complète de tableaux et passez votre commande sur notre site officiel :  
-[🌐 Tabluxe.com](https://tabluxe.com)  
+[🌐 Tableaux décoratifs](https://tabluxe.ma)  
 
 📩 **Contactez-nous :**  
 ✉️ Email : [Info@Tabluxe.com](mailto:Info@Tabluxe.com)  
-📍 Suivez-nous sur Instagram : [@Tabluxe](https://www.instagram.com/tabluxe_com)  
+📍 Suivez-nous sur Instagram : [@Tabluxe](https://www.instagram.com/tabluxe.ma)  
 
 ---  
 © 2025 Tabluxe. Tous droits réservés.
